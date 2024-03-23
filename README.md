@@ -1,5 +1,7 @@
 ## LALA50
 
+![](lala50.jpg)
+
 Available at [https://booth.pm/en/items/5402795](https://booth.pm/en/items/5402795)
 
 ### Board
